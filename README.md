@@ -1,1 +1,0 @@
-# krishibondhu-ai
